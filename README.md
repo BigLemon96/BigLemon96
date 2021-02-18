@@ -1,0 +1,5 @@
+- 👋 Hi, I’m BigLemon96
+- 👀 I’m interested in ... Trynna figure this out
+- 🌱 I’m currently learning ...Idk
+- 💞️ I’m looking to collaborate on ...Nada
+- 📫 How to reach me ...Nada
